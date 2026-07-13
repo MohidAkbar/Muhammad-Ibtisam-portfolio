@@ -86,4 +86,4 @@ Interested in a similar portfolio or web project? Let's connect!
 
 ---
 
-**© 2026 Muhammad Ibtisam — Portfolio designed & developed by [YOUR NAME]**
+**© 2026 MOHID AKBAR — Portfolio designed & developed by MOHID AKBAR**
